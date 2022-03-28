@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @iFlxy
+- 👀 I’m interested in ur mom
+- 🌱 I’m currently learning three dots
+- 💞️ I’m looking to collaborate on ur dad too
+- 📫 How to reach me: dont
